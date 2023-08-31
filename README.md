@@ -20,7 +20,7 @@ hi not dead i'm da-
 
 
 - and before the discord acc got disabled, i got hacked and it sent a lot of NSFW servers spamming so heh
-
+- reading this i now realize i worded this wrong. i got hacked, sent a lot on NSFW invites to my servers, that's what i meant.
 
 - thanks to sanco too, just for being there
 
