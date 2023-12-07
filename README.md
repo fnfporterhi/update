@@ -15,10 +15,6 @@ hi not dead i'm da-
 
 - my discord also apparently got disabled, FOR NO REASON, so i'm gonna try and create a new acc under my git, and hope it works. linking it whenever i create it. i'm still dealing with discord to figure out what happened and if i can get the acc back.
 
-
-- my gf and i are still together, still figuring out whether we can sleep over again or no (and no we did not lose the thing.), cause last time we played xbox for a lot lol
-
-
 - and before the discord acc got disabled, i got hacked and it sent a lot of NSFW servers spamming so heh
 - reading this i now realize i worded this wrong. i got hacked, sent a lot on NSFW invites to my servers, that's what i meant.
 
